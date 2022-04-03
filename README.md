@@ -2,4 +2,4 @@
 - 👀 I’m interested in python
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on. no i dont have collaborate.
-- 📫 How to reach me call me my phone number be in my instagram :)
+- 📫 How to reach me whith k.namazikhah87@gmail.com
